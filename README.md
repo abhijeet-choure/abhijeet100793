@@ -1,4 +1,4 @@
-<img src="https://github.com/abhijeet100793/abhijeet100793/blob/main/d4ca1579-1901-4747-8789-0ead34166701.png" width="100%" ><br>
+<img src="https://wallpapercave.com/wp/wp1904054.png" width="100%" ><br>
 <h1 align="center">Hi 👋, I'm 𝐀в𝔥ιנ𝑒Ⓔ𝐓</h1>
 <h3 align="center">A passionate Software Test Analyst from India</h3>
 
